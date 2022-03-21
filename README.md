@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @OZGURCEMUHENDIS   ve GEZGİN MUHENDIS KANALININ SAHİBİYİM.
-- 👀  Bir muhendis adayiyim
+- 👀  Bir muhendis adayiyim 
 - 🌱 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
