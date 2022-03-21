@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @OZGURCEMUHENDIS   ve GEZGİN MUHENDIS KANALININ SAHİBİYİM.
+- 👋 Hi, I’m @OZGURCEMUHENDIS
 - 👀  Bir muhendis adayiyim 
 - 🌱 
 - 💞️ I’m looking to collaborate on ...
